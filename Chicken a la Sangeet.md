@@ -7,7 +7,7 @@
     1. Cut into slices
 4. 0-10 fresh green chillis, depending on desired spice
     1. finely chopped
-5. 1 bunch cilantro
+5. 0.5 bunch cilantro
     1. roughly chopped
 6. 1tbs minced garlic
 7. 3tbs lemon juice
