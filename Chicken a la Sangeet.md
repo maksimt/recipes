@@ -32,3 +32,34 @@ Unless specified otherwise, when cooking keep covered (to retain moisture), medi
 4. Add onions, green chillis. Cook for 5 minutes.
 5. Add tomatoes, meat masala. Reduce heat to medium-low, cook for 10 minutes.
 6. Add cilantro, lemon juice. Stir, let sit for one minute, serve with rice.
+
+### Sangeet's timeline
+
+Chicken 3lbs cook on high -7:40
+
+Chop one large onion
+Chop 12 green chilli peppers
+Chop 4 tomatoes
+
+Salt 1.5 tbsp 7:55
+Turmeric .5 tbsp 7:55
+Cumin seeds 1tbsp 7:55
+Garlic 1tbsp 7:55
+
+Add onions and peppers 8:05
+
+Add tomatoes 8:10
+
+Chop half a bunch of cilantro
+
+Add 12oz of water 8:23
+
+8:28
+.5 tbsp maggi sauce
+1.5 tbsp lemon juice
+.5 tbsp meat masala
+.5 tbsp salt
+.5tbsp chilli powder
+
+Turn to low heat 8:35
+Add cilantro
