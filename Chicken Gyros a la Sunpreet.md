@@ -10,3 +10,15 @@
 * Lemon juice 
 * Fresh garlic 
 * Turmeric
+
+
+## Tzatziki
+* Grated and drained cucumber 
+* Cilantro 
+* Mint
+* Dill
+* Cumin
+* Smoked paprika 
+* Salt 
+* Pepper 
+* Lemon juice
