@@ -16,6 +16,8 @@ Do I normally add sugar? I don't think I normally add sugar.
 
 I don't like you watching me. This not coming out good. Are you writing that down? Why?
 
+
+
 ## Yield:
 6 4in Pancakes
 
@@ -39,10 +41,26 @@ I don't like you watching me. This not coming out good. Are you writing that dow
 #### Turn on the stove to 5-6/10 to pre-heat your 4-6inch pan.
 
 #### Combine: pour the wet on top of the dry and mix well.
-       If it's not mixing, add a little bit of water (or milk), and then mix.
-       Repeat adding water & mixing until the mixture is runny.
+    If it's not mixing, add a little bit of water (or milk), and then mix.
+    Repeat adding water & mixing until the mixture is runny.
+
+    Consistency test: If you take your fork out, roughly 50% of the mixture on the fork
+    should fall back into the measuring cup with 3-5 seconds.
+
+    If more than 50% of the mixture falls off, add flower to make your mix
+    less watery. If less than 50% of the mixture falls off add water.
        
        
+#### Cook
+    reduce heat to 3-4/10
+    for each pancake repeate:
+        melt 1/4 tbsp butter
+        pour about 1/4 cup little into the center of the pan, it will expand to fill the pan
+        put chocolate chips, as many as you want, arrange however you want, e.g. a smiley face.
+
+        cook for about 3 minutes per side , turning once. (6 minutes per pancake total)
+  
+  
      
     
         
