@@ -24,7 +24,7 @@ I don't like you watching me. This not coming out good. Are you writing that dow
 ## Instructions
 #### Mix together dry ingredients (in a measuring cup):
         1/2 cup flower
-        another 2/3rds of a half flax seeds
+        another 2/3rds of a 1/2 cup flax seeds (or just flower if you don't have flax seeds)
         1 scoop of protein powder, should be just about a cup of ingredients total at this point
         1 tsp baking powder
         oooh cinammon 1/2 tsp
