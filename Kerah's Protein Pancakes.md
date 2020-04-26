@@ -51,7 +51,7 @@ I don't like you watching me. This not coming out good. Are you writing that dow
     less watery. If less than 50% of the mixture falls off add water.
        
        
-#### Cook
+#### Cook & Eat
     reduce heat to 3-4/10
     for each pancake repeate:
         melt 1/4 tbsp butter
@@ -59,6 +59,9 @@ I don't like you watching me. This not coming out good. Are you writing that dow
         put chocolate chips, as many as you want, arrange however you want, e.g. a smiley face.
 
         cook for about 3 minutes per side , turning once. (6 minutes per pancake total)
+        carefully wipe the pan with a paper towel, so you don't have old bits of pan cake
+        messing up new bits of pancakes, but don't burn yourself.
+        eat the pancakes as you go so you cook and eat one time
   
   
      
