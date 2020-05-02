@@ -19,7 +19,7 @@ I don't like you watching me. This not coming out good. Are you writing that dow
 
 
 ## Yield:
-6 4in Pancakes
+4 4in Pancakes
 
 ## Instructions
 #### Mix together dry ingredients (in a measuring cup):
@@ -36,6 +36,7 @@ I don't like you watching me. This not coming out good. Are you writing that dow
         break 2 eggs (make sure the eggs don't have shell)
           (optional) Remove the germ of the egg (the baby chicken)
         1 tsp vanilla essence (or you can get vanilla beans)
+        .25 cup water
       mix these up.
       
 #### Turn on the stove to 5-6/10 to pre-heat your 4-6inch pan.
