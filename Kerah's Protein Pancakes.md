@@ -19,7 +19,8 @@ I don't like you watching me. This not coming out good. Are you writing that dow
 
 
 ## Yield:
-4 4in Pancakes
+4 4in Pancakes (11g protein per pancake)
+
 
 ## Instructions
 #### Mix together dry ingredients (in a measuring cup):
