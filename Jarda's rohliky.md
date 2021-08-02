@@ -1,3 +1,5 @@
+https://photos.app.goo.gl/BRdemEsPyffzs3scA
+
 ## Ingredients
 
 * 350-400g flour (can be a variety of types: smooth, bread, etc)
@@ -20,4 +22,5 @@
 8. Roll out into very thin rectangle and cut up the rectangle into 15cm (per side) triangles https://photos.app.goo.gl/UeThWgvA2wttF5QL8
 9. Roll the triangles up from the wide side towards the narrow side
 10. Place on a pre-greased pan with the thin tip not sticking up https://photos.app.goo.gl/8p3YCYVFv6N5Q3Gk9
+11. Brush top with a little milk, then top with coarse salt and cumin seeds
 11. Place into a cold oven, and bake at 185ºc (365F) for 20m.
