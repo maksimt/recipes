@@ -11,7 +11,7 @@
 ## Instructions
 1. In large circular bowl mix flour, flax seeds, ground cumin.
 2. Make a volcano, with a crater, and with a canal on the outside.
-3. Crumble the yeast in the crater, then add a little room temp water & sugar https://photos.google.com/photo/AF1QipNW-Ln4-Y_Yp0_J7bDlrSulkhQaN15LLcXtFxZt
+3. Crumble the yeast in the crater, then add a little room temp water & sugar https://photos.app.goo.gl/swfZn31XAZfiTnvP9
 4. Let the yeast work for 10 minutes
 5. Add some oil in the canal on the outside, add some salt on the sides of the volcano
 6. Mix the dough with a spoon, then mix by hand until homogenous into a ball https://photos.app.goo.gl/eMu59nMVjzhZ8YBs6
